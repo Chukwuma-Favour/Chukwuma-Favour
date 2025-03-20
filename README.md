@@ -8,6 +8,6 @@
 - 💬 Ask me about Medicine(MB:BS in view),Virtual Assistant roles, Entrepreneurship and Advocacy(SDGs 3,4,9,11&16)
 - 📫 How to reach me: WhatsApp +2348124089490
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I love God(more like real fact😁). I love to sing,make my own hair overnight,bake,learn new things etc
+- ⚡ Fun fact: I love God(more like real fact😁). I love to sing,make my own hair overnight,bake,learn new things etc.
 
 -->
