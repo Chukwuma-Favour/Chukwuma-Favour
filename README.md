@@ -11,4 +11,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: WhatsApp +2348124089490
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I love God(more like real fact😁). I love to sing,make my own hair overnight,bake,learn new things etc
+
 -->
